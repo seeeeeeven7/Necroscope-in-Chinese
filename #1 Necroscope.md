@@ -32,7 +32,7 @@ These were the thoughts in Kyle's head as he stepped from the slushy pavement th
 
 And this afternoon at four o'clock Kyle wouldbe called upon to defend his position, the validity of his branch's being, its very existence. Oh, they'd been quick off the mark, right enough, and Kyle believed he knew why. This was it, the crunch. With nothing to show for five years' work, the project was to be terminated. No matter what arguments he produced, he'd be shouted down. Old Gormley had been able to shout louder than all of them put together; he'd had the clout, the back-up; but Alec Kyle - who was he? In his mind's eye, he could picture the afternoon's inquisition right now:
 
-这个下午的四点钟，凯尔需要保卫其立场，这个分支存在的有效性还有它的存在本身。噢，它们就要理他而去了。凯尔相信他知道为什么，危机。历经五年的工作，却没有任何可展示的东西，这分支就要终结与此。无论他给出什么样的论据，无论他如何大喊大叫。老戈姆利倒是能比其他人喊得都大声，因为他有影响力，有支持。但是亚力克·凯尔，他又是谁？对他来说，下午的审判仿佛已在眼前。
+这个下午的四点钟，凯尔需要保卫其立场，这个分支存在的有效性还有它的存在本身。噢，它们就要离他而去了。凯尔相信他知道为什么，危机。历经五年的工作，却没有任何可展示的东西，这分支就要终结与此。无论他给出什么样的论据，无论他如何大喊大叫。老戈姆利倒是能比其他人喊得都大声，因为他有影响力，有支持。但是亚力克·凯尔，他又是谁？对他来说，下午的审判仿佛已在眼前。
 
 'Yes, Minister, I'm Alec Kyle. My function in the Branch? Well, apart from being second in command to Sir Keenan, I was - I mean I am - er, that is to say, I prognosticate ... I beg your pardon? Ah, it means I foresee the future, sir. Er, no, I have to admit that I probably couldn't give you the winner of the 3:30 at Goodwood tomorrow. My awareness generally isn't that specific. But -'
 
@@ -44,12 +44,11 @@ But it would be hopeless! A hundred years ago they wouldn't accept hypnotism. On
 
 For the fact was that last night he had dreamed that the answer lay right here, in this building, amongst Gormley's papers. Or perhaps 'dreamed' was the wrong word for it. Kyle's revelations - his glimpses of things which had not yet happened, future occurrences -invariably came in those misty moments between true sleep and coming awake, immediately prior to full conscious awareness. The clamour of his alarm-clock could do it, set the process in motion, or even the first crack of sunlight through his bedroom window. That's what it had been this morning: the grey light of another grey day invading his room, getting under his eyelids, impressing upon his idly drifting mind the fact that another day was about to be born.
 
-
-事实是，昨天晚上他梦见答案就在这里，在这栋建筑当中，在戈姆利的文档中。或者不应当说梦见，凯尔的奇石——他瞥见未发生的事情，未来的碎片——在真正的睡眠和即将到来的清醒之间，会在迷雾中出现。闹钟的喧嚣可以做到这一点，只需简单的设定一下，甚至通过卧室窗口照进的第一缕曙光亦可。这就是今早所发生的事情，一个灰色的一天所照进的第一缕灰色的光线，入侵他的房间，在他的眼皮下面，在他懒散的脑海中，印下了这即将开始的一天。
+事实是，昨天晚上他梦见答案就在这里，在这栋建筑当中，在戈姆利的文档中。或者不应当说梦见，凯尔的启示——他瞥见未发生的事情，未来的碎片——在真正的睡眠和即将到来的清醒之间，会在迷雾中出现。闹钟的喧嚣可以做到这一点，只需简单的设定一下，甚至通过卧室窗口照进的第一缕曙光亦可。这就是今早所发生的事情，一个灰色的一天所照进的第一缕灰色的光线，入侵他的房间，在他的眼皮下面，在他懒散的脑海中，印下了这即将开始的一天。
 
 And with it had been born a vision. But again, 'glimpse' might be a better word for it, for that wasall Kyle's talent had ever permitted: the merest glimpse. Knowing this - and knowing that it would only occur once and then be gone forever - he had fastened upon it. absorbed it. He dared not miss a thing. Everything be had ever 'seen' in this way had always proved to be vitally important.
 
-而且它生出了一个景象。或者“瞥见”可能是一个更好的词，因为凯尔的天赋所允许仅仅是瞥见。他知道这一点-知道它只会发生一次，然后永远消失，所以他坚持着，吸收着，他不敢错过任何事情。一切都被“看到”，这样被证明了是至关重要的。
+而且它生出了一个景象。或者“瞥见”可能是一个更好的词，因为凯尔的天赋所允许仅仅是瞥见。他知道这一点-知道它只会发生一次，然后永远消失，所以他坚持着，吸收着，他不敢错过任何事情。过去那些以如此方式被“看到”的事情都证明了这是至关重要的。
 
 And on this occasion:
 
@@ -57,50 +56,92 @@ And on this occasion:
 
 He had seen himself seated at Keenan Gormley's desk, going through his papers one by one. The top right-hand desk drawer was open; the papers and files on the desk in front of him had come from there. Gormley's massive security filing cabinet stood as yet undisturbed against the wall of his office; its three keys were lying on top of the desk where Kyle had tossed them. Each key would open a tiny drawer in the cabinet, and each drawer had its own combination lock. Kyle knew the combinations and yet had not bothered to open the cabinet. No, for that which he sought was right here, in these documents from the drawer.
 
-他看到自己坐在基恩·戈姆利的办公桌上，一张一张的阅览他的文件。右上角书桌的抽屉开着; 他面前的桌子上的文件和文件来自那里。 戈姆利的大规模安全文件柜还没有受到他办公室墙壁的干扰。 它的三把钥匙躺在桌子上，凯尔把他们扔了。 每个钥匙都会在橱柜内打开一个小抽屉，每个抽屉都有自己的组合锁。 凯尔知道这些组合，但并没有打扰开柜。 不，他所寻求的是在这里，在这些文件从抽屉。
-
-
+他看到自己坐在基恩·戈姆利的办公桌上，一张一张的阅览他的文件。右上角书桌的抽屉开着，他桌子上的这些文件正是源自那里。戈姆利的大型安全文件柜静静的嵌在墙上，它的三把钥匙被凯尔扔在桌子上，每把钥匙都可以打开文件柜的一个小抽屉，每个抽屉内都有一个组合锁，凯尔知道这些组合锁的密码，但是并没有尝试去打开柜子。是的，他所寻求的东西不在那而在他面前，在这些从抽屉中拿出的文档中。
 
 As if realisation of that fact had galvanised the image of himself where it sat in Gormley's chair, Kyle had then seen himself pause abruptly as he came to a certain file. It was a yellow file, which meant that it concerned a prospective member of the organisation. Someone 'on the books', as it were. Someone Gormley had had his beady eye on. Perhaps someone with a real talent.
 
+对这一事实的充分认知激起了自己坐在戈姆利椅子上形象的反映，凯尔看到自己暂时停下来，停在了一份特定的文档上。这是一份黄色的文档，这意味着它涉及组织的潜在人员。可以这么说，一个“只在书上”的人。这是一个戈姆利关注着的人，或许，一个拥有真正天赋的人。
+
 As that thought dawned, so Kyle took a step towards himself where he sat. Then, dramatically, as was always the case, his alter-image at the desk had looked up, stared at him, and held up the file so that he could read the name on the cover. The name was 'Harry Keogh'.
 
-That was all. That had been the point where Kyle had started awake. As to what the thing had meant or was supposed to signify - who could say? Kyle had long since given up trying to predict the meaning of these glimpses, other than the fact that they had meaning. But in any case, if something could be said to have brought him here today, it would have to be that brief and as yet inexplic&shy; able 'dream' before waking.
+随着这个想法的出现，凯尔向坐着的自己走进了一步。然后，情理之外却在意料之中的，桌子上的另一个自己抬起了头，看着他，然后举起了档案，所以凯尔能够看清楚封面上的名字，“哈里·凯格”。
+
+That was all. That had been the point where Kyle had started awake. As to what the thing had meant or was supposed to signify - who could say? Kyle had long since given up trying to predict the meaning of these glimpses, other than the fact that they had meaning. But in any case, if something could be said to have brought him here today, it would have to be that brief and as yet inexplicable 'dream' before waking.
+
+这便是所有了，在这一刻凯尔已经开始清醒了。所以这到底意味着什么，或者想要表示什么——谁知道呢？凯尔早已放弃了试图预测这些瞥见的意义，除了它们本身即将发生的事实。但无论如何，如果可以说今天有什么把他带到了这里，那么在从这个无法解释的“梦中”醒来之前，一切都会如那个瞥见一般简单。
 
 As yet it was still fairly early in the morning. Kyle had beaten the first rush of heavy traffic in London's streets by just a few minutes. For the next hour or more all would be chaos out there, but in here it was quiet as the proverbial tomb. The rest of the admin team (all three of them, including the typist!) had been given today and tomorrow off out of respect for the dead man, so the offices upstairs would be completely empty.
 
-In the tiny foyer Kyle had pressed the button for the elevator, which now arrived and opened its doors. He entered and as the doors closed behind him he took out his pass-card, sliding it easily and smoothly through the sensor slot. The elevator jerked but made no upward movement. Its doors opened, waited for a long moment, closed again. Kyle frowned, glanced at his card and silently cursed. It had run out yesterday! Normally Gormley would have renewed its validity on the branch com&shy;puter; now Kyle would have to do it himself. Fortunately he had Gormley's card with him, along with the rest of his office-related effects. Using the ex-Head of Branch's pass-card, he coerced the elevator into carrying him to the top floor, going through a similar procedure to let himself into the main suite of offices.
+现在还是非常早的清晨，凯尔已经在伦敦的街道上打败了第一次交通高峰期，但是也仅有几分钟而已。在接下来的一个小时或更多的时间里，所有的事情都会陷入混乱当中。但是在这里，它就像谚语里一样安静。管理层的其余部分（包括打字员的全部三人）已经在今天和明天都被放了假——给予死者的尊重，所以顶层的办公室空无一人。
 
-The silence inside was almost deafening. High up above the level of the street, with soundproofed floors to shut out hotel noises from below and double-glazed, tinted windows for additional privacy, the place seemed set in a sort of vacuum. The feeling crept in that if you listened to that silence long enough, it would become hard to breathe. It was especially so in Gormley's room, where someone had been thoughtful enough to draw the blinds at the windows. But the blinds had jammed only a little more than half-way shut, so that now, with bands of light coming in through the green-tinted windows, the entire office seemed decorated in a horizontal, sub-marine pin&shy;stripe. It made this once familiar room strangely alien, and it was suddenly very odd and unreal not to have the Old Man here...
+In the tiny foyer Kyle had pressed the button for the elevator, which now arrived and opened its doors. He entered and as the doors closed behind him he took out his pass-card, sliding it easily and smoothly through the sensor slot. The elevator jerked but made no upward movement. Its doors opened, waited for a long moment, closed again. Kyle frowned, glanced at his card and silently cursed. It had run out yesterday! Normally Gormley would have renewed its validity on the branch computer; now Kyle would have to do it himself. Fortunately he had Gormley's card with him, along with the rest of his office-related effects. Using the ex-Head of Branch's pass-card, he coerced the elevator into carrying him to the top floor, going through a similar procedure to let himself into the main suite of offices.
+
+在狭小的门厅中，凯尔按下了电梯的按钮，电梯随即到达并打开了门。他进了门，门在他身后关上，他拿出了他的通行卡，轻松顺利地滑过传感器槽。电梯振动了一下，但没有向上移动。它的门打开了，等待了很长时间后再次关上。凯尔皱着眉头，看着他的卡片默默诅咒。昨天用完了！通常，戈姆利会在分支机上更新其有效次数，但是现在凯尔必须自己去做。幸运的是，他带着戈姆利的卡片，以及其余和他办公室有关的事务。他使用前总监的通行证，让电梯将他带到顶层，并通过类似的程序使自己得以进入主办公室。
+
+The silence inside was almost deafening. High up above the level of the street, with soundproofed floors to shut out hotel noises from below and double-glazed, tinted windows for additional privacy, the place seemed set in a sort of vacuum. The feeling crept in that if you listened to that silence long enough, it would become hard to breathe. It was especially so in Gormley's room, where someone had been thoughtful enough to draw the blinds at the windows. But the blinds had jammed only a little more than half-way shut, so that now, with bands of light coming in through the green-tinted windows, the entire office seemed decorated in a horizontal, sub-marine pinstripe. It made this once familiar room strangely alien, and it was suddenly very odd and unreal not to have the Old Man here...
+
+这其中的沉默震耳欲聋，远离街道的高度，阻挡下方酒店噪音的隔音地板，保护隐私的双层涂色玻璃窗，这个地方似乎坐落于真空当中。这感觉如此之深，如果你听了足够长时间的沉默，就会变得难以呼吸。在戈姆利的房间里更是如此，所以有人在深思熟虑之下将百叶窗拉了下来。但是百叶窗只有拉下来了一半，所以现在光线通过绿色的窗户进入，将整个办公室淹没在一些水平的细条纹当中。它使这个曾经熟悉的房间变得异常陌生，而且那位老人的缺席更是使得这一切非常奇怪和虚幻...
 
 Kyle stood in the doorway, staring into the office for long moments before entering. Then, closing the door behind him, he stepped to the centre of the room. Several hidden scanners had already picked him up and identified him, in the outer offices as well as in here, but a monitor screen in the wall close to Gormley's desk wasn't satisfied. It beeped and printed up:
 
-SIR KEENAN GORMLEY IS NOT AVAILABLE AT PRESENT. THIS IS A SECURE AREA. PLEASE IDENT&shy;IFY YOURSELF IN YOUR NORMAL SPEAKING VOICE, OR LEAVE IMMEDIATELY. IF YOU FAIL TO LEAVE OR IDENTIFY YOURSELF, A TEN SECOND WARNING WILL BE GIVEN, FOLLOWING WHICH THE DOOR AND WINDOWS WILL LOCK AUTOMATI&shy;CALLY... REPEAT: THIS IS A SECURE AREA.
+凯尔站在门口，长时间盯着办公室随即进入。他带上身后的门，走到房间的中心。几个隐藏的扫描仪早已在办公室外和这里发现了他，并识别出了他，但在戈姆利办公桌旁的一个监视器屏幕对此并不满足，它哔哔响起并打印出来一段文字：
+
+SIR KEENAN GORMLEY IS NOT AVAILABLE AT PRESENT. THIS IS A SECURE AREA. PLEASE IDENTIFY YOURSELF IN YOUR NORMAL SPEAKING VOICE, OR LEAVE IMMEDIATELY. IF YOU FAIL TO LEAVE OR IDENTIFY YOURSELF, A TEN SECOND WARNING WILL BE GIVEN, FOLLOWING WHICH THE DOOR AND WINDOWS WILL LOCK AUTOMATICALLY... REPEAT: THIS IS A SECURE AREA.
+
+“基恩·戈姆利先生目前不可用。这是安全区域。请使用您正常的说话语音标识自己，或者立刻离开。如果以上措施均未达成，一段倒数十秒的警报将响起，在这之后窗户和门都将被自动锁上……重复：这是安全区域。”
 
 Feeling irrationally aggressive towards the cold, unthinking machine, and not a little perverse, Kyle said nothing but waited. After a count of three the screen wiped itself clean and printed up:
 
+抱着对这冰冷而无法思考机器的一些较劲情绪，凯尔什么也没有说，而是等待着。在三次重复之后，屏幕擦除掉了所有内容并重新打印：
+
 TEN SECOND WARNING COMMENCES NOW... TEN... NINE... EIGHT... SEVEN ... SIX ...
+
+“开始10秒倒计时警告……10……9……8……7……6……”
 
 'Alec Kyle,' said Kyle grudgingly, not wishing to be locked in.
 
+“亚力克·凯尔”凯尔勉强说道，他可不希望被锁起来。
+
 The machine recognised his voice pattern, stopped counting, commenced a new routine:
+
+机器识别出了他的声音模式，停止了计数，开始了一段新的流程
 
 GOOD MORNING, MR KYLE... SIR KEENAN GORMLEY IS NOT -
 
+“早上好，凯尔先生，基恩·戈姆利先生现在不 - ”
+
 'I know,' said Kyle. 'He's dead.' He stepped to the desk keyboard and punched in the current security override; to which the machine replied:
+
+“我知道，”，凯尔说道：“他死了”。他走近了桌子上的键盘，并在当前的安全控制程序中输入道。而机器回复道：
 
 DO NOT FORGET TO RE-SET BEFORE YOU LEAVE, and switched itself off.
 
+“不要忘记在离开之前重设系统”。然后就将自己关掉了。
+
 Kyle sat down at the desk. Funny world, he thought. And, funny bloody outfit! Robots and romantics. Super science and the supernatural. Telemetry and telepathy. Computerised probability patterns and precognition. Gadgets and ghosts!
+
+凯尔坐在了桌子旁。有趣的世界，他想道。而这是一个多么有趣的机构！机器人和浪漫主义，超级科学和超自然，遥测和心灵感应，计算机概率模式和预认识。小工具和鬼魂！
 
 He reached into a pocket for his cigarettes and lighter, came out with both items and also the keys to Gormley's security cabinet. Without thinking, he tossed the keys on to an empty corner of the desk. Then he paused and stared at them lying there, forming a pattern - the pattern from this morning's glimpse into the future. Very well, let's go from there.
 
+他伸进口袋拿出了他的香烟和打火器，但是随之而出的还有戈姆利的安全柜钥匙。他想也没想的就将钥匙仍在了桌子的空角上。然后他停了下来，看着它们躺在那里，形成了一个特定形状 - 他今早所“瞥见”未来中的那个形状。很好，那么就从这里开始吧。
+
 He tried the drawers of the desk. Locked. He took out Gormley's notebook from the inside pocket of his overcoat, checked the code. It was OPEN SESAME.
+
+他试了试桌子的抽屉，锁上了。他从大衣的内侧口袋中取出了戈姆利的笔记本，找到了密码：“芝麻开门”。
 
 Unable to suppress a chuckle, Kyle punched OPEN SESAME into the desk keyboard and tried again. The top right-hand drawer slid open at a touch. Inside, papers, documents, files...
 
+然而凯尔却笑不出来，他在桌上的键盘输入密码并重新尝试打开抽屉，最右上角的抽屉一碰便滑了出来，在里面是各式的纸张、文档和文件……
+
 And here comes the funny bit, he thought.
+
+有意思的部分来了，他想到。
 
 He took out the papers and placed them in front of him on the desk. Leaving the drawer open (his 'glimpse' again), he began to check through the documents, placing each one back in the drawer in its turn. He knew that by now his talent shouldn't really surprise him any more, but it always did - and so he gave a small involuntary start as he arrived at the yellow file. The name on the cover was, of course, Harry Keogh.
 
+他拿出文件把它们放在桌子前面，并让抽屉就那么开着（他的“瞥见”中描述的那样），他开始检查这些文件，并将它们依次放回到抽屉当中。他知道现在他的天赋不应该再让他感到惊讶了，但每次总会这样，正如他最终发现了那份黄色档案时自然而然升起的感觉一样。那封面上的名字，当然，哈里·凯格。
+
 Harry Keogh. Apart from Kyle's dream, that name had only ever come up once before: in an ESP game he had used to play with Keenan Gormley. As for this file: he had never seen it before in his life (his conscious life, anyway) and yet here he sat staring at it, exactly as in his dream. It was a very creepy feeling. And -
+
+哈里·凯格。除开凯尔的梦中，这个名字只在之前出现过一次，那是他曾经和基恩·戈姆利玩过的一局ESP游戏当中。而这份文件，他在他之前的生活中从未见过（他的现实生活中），而他现在坐着盯着它，就像他的梦中一样。这是一种非常令人毛骨悚然的感觉。
