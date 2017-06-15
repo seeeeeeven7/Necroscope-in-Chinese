@@ -145,3 +145,58 @@ He took out the papers and placed them in front of him on the desk. Leaving the 
 Harry Keogh. Apart from Kyle's dream, that name had only ever come up once before: in an ESP game he had used to play with Keenan Gormley. As for this file: he had never seen it before in his life (his conscious life, anyway) and yet here he sat staring at it, exactly as in his dream. It was a very creepy feeling. And -
 
 哈里·凯格。除开凯尔的梦中，这个名字只在之前出现过一次，那是他曾经和基恩·戈姆利玩过的一局ESP游戏当中。而这份文件，他在他之前的生活中从未见过（他的现实生活中），而他现在坐着盯着它，就像他的梦中一样。这是一种非常令人毛骨悚然的感觉。
+
+In the dream he had held the file up to himself. Now the thought set the act in motion. Feeling foolish - not understanding why he did it, but at the same time feeling his skin charged with alien energy - he held up the file to the empty room, as if to a ghost from his own recent past. And just as a thought had triggered the action, now the action triggered something else - something away and beyond all of Alec Kyle's previous experience or knowledge.
+
+在梦中，他曾将档案展现给了自己。而现在，这个想法促使着他做出那样的动作。虽然感到愚蠢，也不知道为什么要这样做，但是他的皮肤仿佛被奇怪的能量驱使着，于是他将档案举起展现给面前空空如也的房间，仿佛展现给他过去的灵魂一般。正如一个想法促使了他现在的行为，他现在的行为也触发了一些别的什么，一些远超越亚力克·凯尔之前所经历过和所知的东西。
+
+God almighty! Gadgets and ghosts!
+
+全能的神啊！小工具和鬼魂！
+
+The room had been comfortably warm just a moment ago. Centrally heated, the offices were never cold. Or should not be. But now, in a matter of seconds, the temperature had plunged. Kyle knew it, could feel it, but at the same time he retained enough of instinctive reasoning to wonder if perhaps his own body temperature had also taken a tumble. If so, it wouldn't be hard to explain. This must be what shock felt like. No wonder people shivered!
+
+房间之前还是舒适而温暖的。中央供暖，所以办公室从来不冷，也不应该冷
+房间刚刚舒适地暖和了。 中央加热，办公室从不冷。 或不应该。 但现在，在几秒钟之内，气温已经下降了。 凯尔知道，可以感觉到，但同时他保留了足够的本能推理，想知道自己的体温是否也会下降。 如果是这样，这不难解释。 这一定是震惊的感觉。 难怪人们颤抖！
+
+'Jesus Christ!' he whispered, his breath pluming in the suddenly frigid air. The file fell from his twitching fingers, slapped down on the desk. The sound of its falling - that and what he saw - galvanised Kyle into an almost spastic reaction of motion. He jerked back in his chair, causing its legs to ride through the pile of the carpet, tilting it backwards until it slammed against the window sill and rebounded.
+
+The - apparition? - the thing, where it stood half-way between the door and the desk, hadn't moved. At first Kyle had thought (and had dreaded the thought) that it could only be himself he saw standing there, somehow projected forward from the dream. But now he saw that it was someone - something - else. Not once did it enter his mind to question the reality of what he was seeing, and not for a moment did he consider it to be anything other than supernatural. How could it be anything else? The scanners where they constantly swept the room, the entire suite of offices, had detected nothing. Entirely independent, if they had picked up anything at all intruder buzzers would be going off right now, and getting louder by the minute until someone sat up and took notice. But the alarms were silent. Ergo, there was nothing here to scan - and yet Kyle saw it.
+
+It, he, was a man - a youth, anyway - naked as a baby, standing there facing Kyle, looking directly at him. But his feet weren't quite touching the carpeted floor and the bars of green light from the windows penetrated into his flesh as if it had no substance at all. Damn it - it had no substance at all! But the thing stared at him, and Kyle knew that it saw him. And in the back of his mind he asked himself: Is it friendly, or - ?
+
+Inching his chair forward again, his eyes spied some&shy;thing in the back of the open drawer. A Browning 9mm automatic. He'd known Gormley carried a weapon but hadn't known about this one. But would the gun be loaded, and if it was would it be any good against this?
+
+'No,' said the naked apparition with a slow, almost imperceptible shake of its head. 'No it wouldn't.' Which was all the more surprising because its lips didn't move by the smallest fraction of an inch!
+
+'Jesus Christ!' Kyle gasped again, out loud this time, as he once more gave an involuntary start away from the desk. And then, controlling himself, to himself, he said:
+
+You ... you read my mind!
+
+The apparition smiled a thin smile. 'We all have our talents, Alec. You have yours and I have mine.'
+
+Kyle's lower jaw, already agape, now fell open. He wondered which would be easier: to simply think at the thing or to talk to it.
+
+'Just talk to me,' said the other. 'I think that will be easier for both of us.'
+
+Kyle gulped, tried to say something, gulped again and finally gasped out: 'But who... what... what the hell are you?'
+
+'Who I am doesn't matter. What I have been and will be does. Now listen, I've a lot to tell you and it's all rather important. It will take some time, hours maybe. Do you need anything before I begin?'
+
+Kyle stared hard at the ... whatever it was. He stared at it, jerked his eyes away from it, peered at it out of the corner of his eye. It was still there. He surrendered to instinct backed up by at least two of his five senses, those of sight and hearing. The thing seemed rational; it existed; it wanted to talk to him. Why him and why now? Doubtless he'd shortly be finding out. But - God damn! -he wanted to talk to it, too. He had a real live ghost here, or a real dead one!
+
+'Need anything?' he shakily repeated the other's question.
+
+'You were going to light a cigarette,' the apparition pointed out. 'You might also like to take your coat off, get yourself a coffee.' It shrugged. 'If you do these things first, then we can get on with it.'
+
+The central heating had come on, turning itself up a notch to compensate for the sudden fall in temperature. Kyle carefully stood up, took off his overcoat and folded it over the back of his chair. 'Coffee,' he said. 'Yes - er, I'll just be a moment.'
+
+He walked round the desk and past his visitor. It turned to watch him leave the room, a pale shadow of a thing floating there, skinny, insubstantial as a snowflake, a puff of smoke. And yet...oh, yes, there was a power in it. Kyle was thankful it didn't follow him...
+
+He put two five-pence pieces in the coffee machine in the main office, fumbling the coins into the slot, and headed for the gents' toilet before the machine could deliver. He quickly relieved himself, picked up his steam&shy;ing paper cup of coffee on the way back to Gormley's office. The thing was still there, waiting for him. He carefully walked round it, seated himself again at the desk.
+
+And as he lit a cigarette he looked at his visitor more closely, in greater detail. This was something he had to get fixed in his mind.
+
+Taking into account the fact that its feet weren't quite touching the floor, it must be about five-ten in height. If its flesh was real instead of milky mist, it - or he - would weigh maybe nine stone. Everything about him was vaguely luminous, as if shining with some faint inner light, so Kyle couldn't be sure about colouring. His hair, an untidy mop, seemed sandy. Faint and irregular marks on his high cheeks and forehead might be freckles. He would be, oh, maybe twenty-five years old; he had looked younger at first but that effect was wearing off now.
+
+His eyes were interesting. They looked atKyle and yet seemed to look right through him, as if he were the ghost and not the other way about. They were blue, those eyes - that startlingly colourless blue which always looks so unnatural, so that you think the owner must be wearing lenses. But more than that, there was that in those eyes which said they knew more than any twenty-five-year-old had any right knowing. The wisdom of ages seemed locked in them, the knowledge of centuries lay just beneath the faintly blue film which covered them.
