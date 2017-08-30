@@ -152,32 +152,51 @@ In the dream he had held the file up to himself. Now the thought set the act in 
 
 God almighty! Gadgets and ghosts!
 
-全能的神啊！小工具和鬼魂！
+全能的神啊！这是什么鬼玩意！
 
 The room had been comfortably warm just a moment ago. Centrally heated, the offices were never cold. Or should not be. But now, in a matter of seconds, the temperature had plunged. Kyle knew it, could feel it, but at the same time he retained enough of instinctive reasoning to wonder if perhaps his own body temperature had also taken a tumble. If so, it wouldn't be hard to explain. This must be what shock felt like. No wonder people shivered!
 
-房间之前还是舒适而温暖的。中央供暖，所以办公室从来不冷，也不应该冷
-房间刚刚舒适地暖和了。 中央加热，办公室从不冷。 或不应该。 但现在，在几秒钟之内，气温已经下降了。 凯尔知道，可以感觉到，但同时他保留了足够的本能推理，想知道自己的体温是否也会下降。 如果是这样，这不难解释。 这一定是震惊的感觉。 难怪人们颤抖！
+这房间刚刚还是温暖舒适的，这是因为中央供暖的缘故，办公室从来不冷，也不应该冷。但是现在，就在这几秒钟之内，气温迅速的下降。凯尔知道这一点是因为他切身感受到了，不过他仍然保持了足够的理智，他想知道自己的体温是否也下降了。即使下降了也不奇怪，这便是震惊的感觉！这便是人们颤抖的缘故！
 
 'Jesus Christ!' he whispered, his breath pluming in the suddenly frigid air. The file fell from his twitching fingers, slapped down on the desk. The sound of its falling - that and what he saw - galvanised Kyle into an almost spastic reaction of motion. He jerked back in his chair, causing its legs to ride through the pile of the carpet, tilting it backwards until it slammed against the window sill and rebounded.
 
+“天呐！”他低声呢喃道，呼吸在骤冷的空气中流动。他的手指颤抖着，以致于文件从他的指缝中落下，摊落在桌子上。而这坠落的声音，以及他所看到的东西，使得他近乎痉挛。他猛地坐回了椅子上，使得椅腿跨过了一堆地毯，整个椅子都向后倾斜，直到撞到了窗台上并反弹了回来。
+
 The - apparition? - the thing, where it stood half-way between the door and the desk, hadn't moved. At first Kyle had thought (and had dreaded the thought) that it could only be himself he saw standing there, somehow projected forward from the dream. But now he saw that it was someone - something - else. Not once did it enter his mind to question the reality of what he was seeing, and not for a moment did he consider it to be anything other than supernatural. How could it be anything else? The scanners where they constantly swept the room, the entire suite of offices, had detected nothing. Entirely independent, if they had picked up anything at all intruder buzzers would be going off right now, and getting louder by the minute until someone sat up and took notice. But the alarms were silent. Ergo, there was nothing here to scan - and yet Kyle saw it.
+
+这是，幻影？那个站在门和桌子中间的的东西，并没有移动。 起初，凯尔以为（并为这样的想法感到害怕）这是过去的自己，不知何故从过去的梦中出现。 但是现在他看到的却是别的什么人，或者说别的什么东西。 他从未质疑过他所看到的东西的真实存在，但他也从没想过这东西是正常存在的事物。 怎么可能是什么别的呢？房间里的扫描器仍在扫描着整个房间，但是整个办公室里却什么都没有被侦测到。 报警系统是独立工作的，如果他们检测到任何的入侵可能，所有的入侵警报都会立刻响起，并且随着时间变得越来越大直到有人过来进行处理。 但是现在，警报器都安安静静的，这意味着这里没有扫描到任何东西，但是凯尔却看到了。
 
 It, he, was a man - a youth, anyway - naked as a baby, standing there facing Kyle, looking directly at him. But his feet weren't quite touching the carpeted floor and the bars of green light from the windows penetrated into his flesh as if it had no substance at all. Damn it - it had no substance at all! But the thing stared at him, and Kyle knew that it saw him. And in the back of his mind he asked himself: Is it friendly, or - ?
 
+它，他是一个男人，一个年轻的，呃，裸着身子的男人站在那里，面朝着凯尔，直直的看着他。但是他的脚实际上并没有接触到地面，而从窗户缝隙中照进的斑斓绿光直直的透过了他的身体——仿佛那根本没有东西一样，该死的！那里根本就没有东西！但是当那东西看着他的时候，凯尔知道它在看着他，而在他内心深处不停回响着一个问题，它是友好的，还是？
+
 Inching his chair forward again, his eyes spied some&shy;thing in the back of the open drawer. A Browning 9mm automatic. He'd known Gormley carried a weapon but hadn't known about this one. But would the gun be loaded, and if it was would it be any good against this?
+
+他将椅子缓缓朝前移回，他的眼睛盯着开着的抽屉里内部的一个东西 —— 一把9mm自动勃朗宁手枪。 他知道戈姆利持有一把武器，但是对这一把却毫无所知，这枪是否上膛了？就算是，它又能否对抗眼前的不知何物？
 
 'No,' said the naked apparition with a slow, almost imperceptible shake of its head. 'No it wouldn't.' Which was all the more surprising because its lips didn't move by the smallest fraction of an inch!
 
+“不能，”赤裸的幻影缓缓说道，并难以察觉的摇了摇头：“它对我毫无用处。” 令人惊奇的是，它的嘴唇始终没有动过一丝一毫。
+
 'Jesus Christ!' Kyle gasped again, out loud this time, as he once more gave an involuntary start away from the desk. And then, controlling himself, to himself, he said:
+
+“天呐！”凯尔喘息道，这一次格外大声，并且开始不由自主的再次远离桌子。随即他控制住了自己，并在自己的意识里说道：
 
 You ... you read my mind!
 
+你 …… 你阅读了我的思想。
+
 The apparition smiled a thin smile. 'We all have our talents, Alec. You have yours and I have mine.'
+
+幻影浅笑道：“我们都拥有各自的天赋，亚力克。你有你的，而我也有我的。”
 
 Kyle's lower jaw, already agape, now fell open. He wondered which would be easier: to simply think at the thing or to talk to it.
 
+凯尔的下巴早已蓄势待发，而现在已完全张开来，他不禁想到，与这幻影进行交流，是简单的思考还是说出来会比较简单。
+
 'Just talk to me,' said the other. 'I think that will be easier for both of us.'
+
+“直接说出来吧，”幻影说道：“这对我们来说都更为简单。”
 
 Kyle gulped, tried to say something, gulped again and finally gasped out: 'But who... what... what the hell are you?'
 
