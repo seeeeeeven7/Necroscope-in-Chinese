@@ -4,11 +4,11 @@ Prologue
 
 The hotel was big and rather famous, ostentatious if not downright flamboyant, within easy walking distance of Whitehall , and... not entirely what it seemed to be. Its top floor was totally given over to a company of international entrepreneurs, which was the sum total of the hotel manager's knowledge about it. The occupants of that unknown upper region had their own elevator at the rear of the building, private stairs also at the rear and entirely closed off from the hotel itself, even their own fire escape. Indeed they - 'they' being the only identific ation one might reasonably apply in such circumstances - owned the top floor, and so fell entirely outside the hotel's sphere of control and operation. Except that from the outside looking in, few would suspect that the building in total was anything other than what it purported to be; which was exactly the guise or aspect - or lack of such - which 'they' wished to convey.
 
-这家酒店坐落于白厅的步行范围内，它大而著名，即便不过多夸张——它也相当招摇。但是，它并不完全像它看上去那样——酒店的顶层被完全的给予了一家国际企业家的公司，而这也就是酒店经理所知的全部了。这个未知的上层区域被它的占据者们在建筑物的后侧安装了单独的电梯、私人楼梯甚至还有消防通道，并且完全不对酒店本身开放。事实上，他们 - “他们是在这种情况下唯一可以合理应用的称呼” - 完全拥有顶层，所以彻底的脱离了酒店的控制和操作范围。从酒店的外表看来，很少人会怀疑这座建筑物会超脱其本身所表述的那些东西——这正是他们所希望传达的意图，或者说是他们所缺少的。
+这是一家著名的大酒店，即使用金碧辉煌也难以尽述其貌，从酒店出发短短数步便可来到白厅大街（英国政府所在）。但是它并不完全像它外表上体现出的那样，它的整个顶层都被一些国际企业家所开设的公司占据了，而这便是酒店经理所知的全部信息了。 这个未知的上层区域被它的占据者们在建筑物的后侧安装了单独的电梯、楼梯甚至还有消防通道，并且完全不对酒店本身开放。事实上，“他们”——在这种情况下唯一可以合理应用的称呼，完全拥有着顶层，彻底脱离了酒店的控制范围。从酒店的外表看来，很少人会怀疑这座建筑物会超脱其本身所表述的那些东西——这正是“他们”所希望传达的意图，或者说是“他们”所缺少的。
 
 As for the 'international entrepreneurs' - whatever such creatures might be - 'they' were not. In fact they were a branch of Government, or more properly a subsidiary body. Government supported them in the way a tree supports a small creeper, but their roots were wholly separate. And similarly, because they were a very tiny parasite, the vast bulk of the tree was totally unaware of their presence. As is the case with so many experimental, unproven projects, their funding was of a low priority, came out of 'petty cash'. The upkeep of their offices was therefore far and away top of the list where costing was concerned, but that was unavoidable.
 
-至于“国际企业家” - 无论这个辞藻描述的是什么 - “他们”其实并不是。 事实上，他们是政府的一个分支，或者说附属机构更合适。政府以树木支撑小爬虫的方式支持他们，但他们的根源是完全分开的。同样的，因为他们是非常小的寄生虫，所以树木的大部分躯干完全不知道他们的存在。就像许多实验性、未经证实的项目一样，他们的资金是低优先级，来自“小现金”。因此，他们的办公室的维护成本远远超过了成本核算清单中应当的数额，但这是不可避免的。
+至于“国际企业家” - 无论这个辞藻描述的是什么 - “他们”其实并不是。 事实上，他们是政府的一个部门，或者说附属机构更合适。政府以树木支撑小爬虫的方式支持他们，但他们的根源是完全分开的。同样的，因为他们是非常小的寄生虫，所以树木的大部分躯干完全不知道他们的存在。就像许多实验性、未经证实的项目一样，他们的资金是低优先级，来自“小现金”。因此，他们的办公室的维护成本远远超过了成本核算清单中应当的数额，但这是不可避免的。
 
 For unlike other projects, the nature of this one demanded a very low profile indeed. Its presence in the event of discovery would be an acute embarrassment; it would doubtless be viewed with suspicion and scorn, if not disbelief and downright hostility; it would be seen as a totally unnecessary expenditure, a needless burden on the taxpayer, a complete waste of public money. Nor would there be any justifying it; the benefits or fruits of its being remained as yet entirely conjectural and the mildest 'frost' would certainly put paid to them. The same principles apply to any such organisation or service: it must (a) be seen to be effective while paradoxically (b) maintaining its cloak of invisibility, its anonymity. Ergo: to expose such a body is to kill it...
 
@@ -200,22 +200,100 @@ Kyle's lower jaw, already agape, now fell open. He wondered which would be easie
 
 Kyle gulped, tried to say something, gulped again and finally gasped out: 'But who... what... what the hell are you?'
 
+凯尔咽了咽口水，尝试着说些什么，随后又咽了咽，最终说道：“但是，你是……什么……鬼东西？”
+
 'Who I am doesn't matter. What I have been and will be does. Now listen, I've a lot to tell you and it's all rather important. It will take some time, hours maybe. Do you need anything before I begin?'
+
+“我是谁并不重要，我的来处和去处才是问题的关键。 现在听着，我有很多重要的事情要告诉你。 这可能会花上一些时间，几个小时吧。 在我开始之前你需要些什么吗？”
 
 Kyle stared hard at the ... whatever it was. He stared at it, jerked his eyes away from it, peered at it out of the corner of his eye. It was still there. He surrendered to instinct backed up by at least two of his five senses, those of sight and hearing. The thing seemed rational; it existed; it wanted to talk to him. Why him and why now? Doubtless he'd shortly be finding out. But - God damn! -he wanted to talk to it, too. He had a real live ghost here, or a real dead one!
 
+凯尔用力的凝视着……那不知什么东西。 他将目光移开，试图用余光观察它，但是它仍在在那。 他放弃了对他五感中至少两种——视觉和听觉的相信。 这东西看起来似乎是合理的，它实际存在着，并且想要与他说话。 为什么是他，为什么是现在？他感觉自己短时间内是弄不清楚了。 但是，该死的，他想要和它交流。 毕竟这是一个真实存在的鬼魂，一个真实的死着。
+
 'Need anything?' he shakily repeated the other's question.
+
+“需要些什么？”他颤抖着重复着幻影的问题。
 
 'You were going to light a cigarette,' the apparition pointed out. 'You might also like to take your coat off, get yourself a coffee.' It shrugged. 'If you do these things first, then we can get on with it.'
 
+“你需要点燃一支香烟，”幻影指出：“你也许需要脱下你的大衣，并且给自己弄上一杯咖啡。”它耸了耸肩，继续道：“如果你先做这些，我们就可以更好的继续下去。”
+
 The central heating had come on, turning itself up a notch to compensate for the sudden fall in temperature. Kyle carefully stood up, took off his overcoat and folded it over the back of his chair. 'Coffee,' he said. 'Yes - er, I'll just be a moment.'
+
+中央供暖默默的提高了一个档位，用以弥补突然的温度下降。 而凯尔也小心翼翼的站了起来，脱下了他的外套，并将其折叠起来放在了椅背上。“咖啡，”他说道：“是的，呃，我需要一会。”
 
 He walked round the desk and past his visitor. It turned to watch him leave the room, a pale shadow of a thing floating there, skinny, insubstantial as a snowflake, a puff of smoke. And yet...oh, yes, there was a power in it. Kyle was thankful it didn't follow him...
 
+他绕过桌子，从摆放着身边穿过。它转过身来看着他走出房间，漂浮在那里的苍白阴影，显得消瘦，像雪花和烟雾那般没有实质。 但是，你可以感觉出其中存在的力量。 凯尔在心里默默感谢它没有跟过来。
+
 He put two five-pence pieces in the coffee machine in the main office, fumbling the coins into the slot, and headed for the gents' toilet before the machine could deliver. He quickly relieved himself, picked up his steam&shy;ing paper cup of coffee on the way back to Gormley's office. The thing was still there, waiting for him. He carefully walked round it, seated himself again at the desk.
+
+他掏出两个五便士硬币，来到主办公室的咖啡机旁，摸索着将硬币放入到插槽当中，然后朝洗手间走去——机器需要一会时间来处理。 他很快的释放了自己，随后回到咖啡机旁拿起了冒着热气的纸杯，走回了戈姆利的办公室。那个东西仍然在那里，等待着他，他小心翼翼的绕过了它，重新坐在了办公桌后。
 
 And as he lit a cigarette he looked at his visitor more closely, in greater detail. This was something he had to get fixed in his mind.
 
+随后他点起了一根香烟，并坐近了他的拜访者，这样他就能够看得更仔细——更多的细节，这是他必须映在自己脑海中的东西。
+
 Taking into account the fact that its feet weren't quite touching the floor, it must be about five-ten in height. If its flesh was real instead of milky mist, it - or he - would weigh maybe nine stone. Everything about him was vaguely luminous, as if shining with some faint inner light, so Kyle couldn't be sure about colouring. His hair, an untidy mop, seemed sandy. Faint and irregular marks on his high cheeks and forehead might be freckles. He would be, oh, maybe twenty-five years old; he had looked younger at first but that effect was wearing off now.
 
+抛开它的脚并没有着地的事实，它的高度大概有5英尺10英寸的样子。 如果它的躯体是实体而不是牛奶般的迷雾的话，它或者说他的体重大概9英石。 他身上的一切都在模糊的发着光，似乎是从内部中照射出的微弱光芒，所以凯尔不能确定其具体的颜色。 他的发型是一个不太整齐的拖把头，看起来像沙堆一样。 他有着高高的脸颊和额头，上面带着微弱和不规则的痕迹——可能是雀斑。他或许，哦，大概只有25岁的样子，第一印象他可能会显得更年轻，但是随后的一些痕迹会将结论推后。
+
 His eyes were interesting. They looked atKyle and yet seemed to look right through him, as if he were the ghost and not the other way about. They were blue, those eyes - that startlingly colourless blue which always looks so unnatural, so that you think the owner must be wearing lenses. But more than that, there was that in those eyes which said they knew more than any twenty-five-year-old had any right knowing. The wisdom of ages seemed locked in them, the knowledge of centuries lay just beneath the faintly blue film which covered them.
+
+他的眼睛非常有意思，它们看着凯尔，并且似乎透过了他，像他才是那个鬼魂一样。 那是一双蓝色的眼睛，是那种令人惊艳的无神蓝色，看起来非常不自然，令人不由自主的认为那一定是隐形眼镜什么的。 但是那眼神却在仿佛在告诉人们，眼睛之后的人实际上比一个正常的25岁的人知道的更多。 年龄带来的智慧似乎锁在了它们之上，数个世纪的知识就隐藏在它们散发出的微弱蓝光之下。
+
+Apart from that, his features were fine, like porcelain and seeming equally fragile; his hands were slim, tapering; his shoulders drooped a little; his skin in general, apart from the freckles of his face, was pale and unblemished. But for the eyes, you probably wouldn't look at him twice on the street. He was just ... a young man. Or a young ghost. Or maybe a very old one.
+
+除开这些之外，他的特征只能说是平平常常，像瓷器般，也同样的脆弱。他的手细长，他的肩膀有点坠，他的皮肤除了脸上的雀斑，可以说是苍白无暇。但是他的眼睛，你绝不会在街上能够再次看到。 他就像是一个……年轻人，或者说年轻鬼，当然也可能是一个老鬼。
+
+'No,' said the object of Kyle's scrutiny, his lips immo&shy; bile, 'I'm not any kind of ghost. Not in the classic sense of the word, anyway. But now, since you obviously accept me, can we begin?'
+
+“不，”凯尔审视的目标说道，他的嘴唇懂了起来：“我并不是任意形式上的鬼魂，至少不是这个词经典定义中的哪些。 但是现在，既然那你已经接受了我的存在，我们可以开始了么？”
+
+'Begin? Er, of course!' Kyle suddenly felt like laughing, hysterical as a schoolgirl. He controlled it with an effort.
+
+“开始？呃，当然！”凯尔突然有点想笑，那种校园女生发出的歇斯底里的笑声，但是他努力控制住了。
+
+'Are you sure you're ready?'
+
+“你确定你准备好了么？”
+
+'Yes, yes. Go right ahead. But - er - can I record this? For posterity or whatever, you know? There's a tape recorder here, and I -'
+
+“嗯，是的，开始吧。但，呃，我能够录下来么？这样将来如果有什么事情发生的话，这里就有一份记录，我就……”
+
+'The machine won't hear me,' said the other, shaking his head again. 'Sorry, but I'm only speaking to you - directly to you. I thought you understood that? But... take notes if you wish.'
+
+“那部机器听不到我的声音，”幻影说道，又摇了摇他的头：“抱歉，但是我只在跟你说——直接的跟你说，我觉得你应该能理解这种方式吧？不过……如果你愿意的话，你可以做笔记什么的。”
+
+'Notes, yes...' Kyle scrabbled in the desk drawers, found paper and a pencil. 'Fine, I'm ready.'
+
+“笔记，对……”凯尔在抽屉中翻找着，找到了一些纸和一只铅笔：“好的，我准备好了。”
+
+The other slowly nodded. 'The story I have to tell is ... strange. But working in an organisation such as yours, you shouldn't find it too unbelievable. If you do... there'll be plenty for you to do afterwards; the truth of the things I'm going to tell you will come out then. As to any doubts you may have about the future of your branch - put them aside. Your work will go on, and it will go from strength to strength. Gormley was the head, but he's dead. Now you will be head - for a little while. You'll be up to it, I assure you. Anyway, nothing that Gormley knew has been lost; indeed, much has been gained. As for the Opposition - they've suffered losses from which they may never recover. At least, they're about to.'
+
+幻影缓缓的点了点头，道：“我要告诉你的故事……很离奇。但是在一个这样的部门工作，你应该不会觉得这太难以令人置信。如果你实在觉得难以相信的话……可能之后你需要做一些额外的调查；我所告诉你的事情的真实性是可以被得到证明的。 至于你对部门未来的担忧，你可以暂时将它们放在一边。 你的工作会继续下去，并且会越来越成功。 戈姆利是你们之前的头头，但是他已经死了。那么现在你就会成为你们的头头，至少暂时的。 你会习惯这一切的，我向你保证。 总之，戈姆利所知晓的一些都并未丢失；实际上，它们还在不断增殖着。而那些反对派，他们会遭受难以恢复的损失的。至少，他们正要呢。”
+
+As the apparition spoke, so Kyle's eyes opened even wider and he sat up straighter and straighter. It (he, dammit!) knew about the branch. About Gormley. About 'the Opposition', which was branch parlance for the Russian outfit. And what was this about them suffering heavy losses? Kyle knew nothing of that! Where did this - being - get its information? And just how much did it know anyway?
+
+随着幻影的话语，凯尔的眼睛越长越大，他也坐的越来越治。它（他，该死的！）知道部门，知道戈姆利，知道“反对派”——这是部门内对俄罗斯装备部的称呼。 那么他所说的即将遭受的沉重损失是什么呢？凯尔一点都不知道，这个，东西，是从哪得到这些信息的？他又知道多少东西呢？
+
+'I know more than you can possibly imagine,' said the other, smiling wanly. 'And what I don't know I can get to know - almost anything.'
+
+“我比你想象的知道的还要多，”幻影微笑着说道：“我不知道的我也能去了解——几乎所有的事情。”
+
+'See,' said Kyle defensively, 'it's not that I doubt any of this - or even my sanity, for that matter - it's just that I'm trying to adjust, and -'
+
+“看起来似乎是的，”凯尔回嘴道：“并不是我怀疑这些，如果有必要的话，这甚至包括我的理智——只是我需要试着调整，并且……”
+
+'I understand,' the other cut him off. 'But, please, do your adjusting as we go, if you can. In what I'm about to tell you, time-zones may overlap a little, so you'll need to adjust to that, too. But I'll keep it as chronologically sound as I can. The important thing is the information itself. And its implications.'
+
+“我理解，”幻影打断道：“但是，请，让我们先开始，在这个过程中你可以尽你的努力调整。 在我将要告诉你的事情中，时间会有一些略微的重叠，你肯定也会需要适应这种问题的。但是我会尽我所能按照时间顺序进行描述的。注意重要的东西在于信息本身，以及它们的含义。”
+
+'I'm not sure I quite under - '
+
+“我不太确定我理……”
+
+'I know, I know. So just sit there and listen, and then maybe you will understand.'
+
+“是的，我知道。所以先坐在那听我慢慢道来，然后你或许就会明白我的意思了。”
