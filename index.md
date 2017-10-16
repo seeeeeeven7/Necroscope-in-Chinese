@@ -1,1 +1,2 @@
-123123
+[1.1](https://seeeeeeven7.github.io/Necroscope-in-Chinese/1.1)
+[1.2](https://seeeeeeven7.github.io/Necroscope-in-Chinese/1.2)
